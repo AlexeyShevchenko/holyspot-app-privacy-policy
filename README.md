@@ -1,0 +1,1 @@
+# holyspot-app-privacy-policy
